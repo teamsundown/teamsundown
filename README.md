@@ -39,7 +39,7 @@ TO BE ADDED
 
 ### 📬 Let’s Connect
 
-- **Email:** teamsundocnllc@gmail.com 
+- **Email:** teamsundownllc@gmail.com
 - **Portfolio:** [notion.site/TeamSunDown](#) *(Coming soon)*
 
 ---
